@@ -1,6 +1,6 @@
 # Simplified Overview: How Debt, Legal Identity, and Digital Assets Intertwine in a Government-Orchestrated Crime System
 
-# If you dont share this and United both side Many People will get hurt 
+# If you dont share this and Unite both side Many People will get hurt 
 
 This summary breaks down a complex scheme explained in the larger reference document into an easier, mid-level format for readers new to financial systems and legal frameworks.
 
