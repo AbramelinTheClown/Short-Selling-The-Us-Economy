@@ -130,10 +130,6 @@ This document outlines the statutory and regulatory foundations for two critical
 
 ---
 
-Let me know if you'd like this as:
-- A downloadable `README.md`
-- A printable `.pdf` legal brief
-- An extended version that includes liens, crypto regulation, or bankruptcy law
 
 
 # If you dont share this and Unite both side Many People will get hurt 
